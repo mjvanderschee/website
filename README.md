@@ -1,1 +1,1 @@
-https://www.friv.com/ 😀👍
+https://www.friv.com/
