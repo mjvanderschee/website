@@ -1,6 +1,8 @@
 #              KATTEN
 * Wanneer is de kat ondekt?
+* wanneer of welke kat werd als eerste de huiskat?
 * Wanneer is het eerste boek over katten gemaakt?
+* 13 Leuke weetjes!
 * hoeveel soorte katten (rassen) zijn er?
 * welke soorten katten zijn leven het meeste?
 * hoeveel zwerf katten leven er op de aarde?
@@ -38,8 +40,17 @@ LEUKE WEETJES
 
 10 Katten houden erg van slapen en doen dit ongeveer 70% van de dag. Een kat van negen jaar oud is slechts drie jaar van zijn leven wakker geweest.
 
+11 De oudste kat ter wereld is op het moment van schrijven zo'n 26 jaar oud. Volgens het Guinness Book of Records was Creme Puff dan weer de oudste kat ter wereld ooit. Deze kattin werd maar liefst 38 jaar en 3 dagen oud. Baby, de oudste kater, bereikte een leeftijd van 38 jaar.27 apr 2022
 
+12 De dikste kat ter wereld is overleden. Miauw uit de Verenigde Staten was 18 kilo en woonde sinds april in een asiel. De kat was al op dieet, maar zijn hart stopte er toch mee omdat hij te ongezond was. Miauw was van een oma van 87 jaar.8 mei 2012
 
+13 De langste huiskat ter wereld was Maine Coon Stewie, geboren in de Verenigde Staten. Op 28 augustus 2010 had Stewie een lengte van 123 centimeter.
+
+![image](https://user-images.githubusercontent.com/84578661/215310696-25d32dde-02e1-4318-a7fd-ff20db0145e6.png)
+![image](https://user-images.githubusercontent.com/84578661/215310739-b9ced74b-3d90-4752-9361-b7ba7218ce63.png)
+![image](https://user-images.githubusercontent.com/84578661/215310768-611cf31a-cbd5-413b-b27f-5f397d8e20b0.png)
+
+https://nl.m.wikipedia.org/wiki/Bestand:Cat_birth_2.ogv
 
 
 
