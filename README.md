@@ -49,27 +49,37 @@ LEUKE WEETJES
 ![image](https://user-images.githubusercontent.com/84578661/215310696-25d32dde-02e1-4318-a7fd-ff20db0145e6.png)
 ![image](https://user-images.githubusercontent.com/84578661/215310739-b9ced74b-3d90-4752-9361-b7ba7218ce63.png)
 ![image](https://user-images.githubusercontent.com/84578661/215310768-611cf31a-cbd5-413b-b27f-5f397d8e20b0.png)
+ 
+15 POPULIARE
+1. Europese korthaar
+2. Maine Coon
+3. Blauwe Rus
+4. Brits korthaar
+5. Siberische kat.
+6. Noorse boskat
+7. Heilige Birmaan
+8. Ragdoll
+9. Perzische langhaar!
+10. Sphynx
+11. Siamees
+12. Abessijn
+13. Exotic
+14. Amerikaanse korthaar
+15. Devon Rex
 
-https://nl.m.wikipedia.org/wiki/Bestand:Cat_birth_2.ogv
-https://www.google.com/url?sa=t&source=web&rct=j&url=https://www.kattengoed.nl/wist-je-dat/hoeveel-katten-in-de-wereld%23:~:text%3DWereldwijd%2520zijn%2520er%2520ongeveer%252050,diverse%2520varianten%2520van%2520de%2520huiskat.&ved=2ahUKEwimt-fgpuz8AhVGi_0HHbBYAaIQFnoECBQQBQ&usg=AOvVaw0tszPpHERJ_WATZW_m03Sx
-
-
-
-
-
-.
-
-
-
-
-
-
-
-
-
-
-
-
+[image](https://user-images.githubusercontent.com/84578661/215277291-d766db61-77e7-4493-8df3-14eea5508984.png)
 
 
-![image](https://user-images.githubusercontent.com/84578661/215277291-d766db61-77e7-4493-8df3-14eea5508984.png)
+
+
+
+
+
+
+
+
+
+
+
+
+
