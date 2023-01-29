@@ -67,10 +67,6 @@ LEUKE WEETJES
 14. Amerikaanse korthaar
 15. Devon Rex
 
-[image](https://user-images.githubusercontent.com/84578661/215277291-d766db61-77e7-4493-8df3-14eea5508984.png)
-
-https://www.google.com/url?sa=t&source=web&rct=j&url=https://www.youtube.com/watch%3Fv%3Dh8VcbSYYsHE&ved=2ahUKEwiomv-Y3uz8AhXC_rsIHYpvDxUQwqsBegQIFRAB&usg=AOvVaw3R1fmk7b0FxNcN69ldHkcp
-
 
 
 
