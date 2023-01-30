@@ -67,8 +67,51 @@ LEUKE WEETJES
 14. Amerikaanse 
 15. Devon Rex
 
-ken je garfield?
-ik ben fan van garfield!
+ken je garfield!
+ik ben zelf fan van garfield!
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Ik heb 2 katten. maui die de hele tijd miauwt.(2,05)jaar
+en masja die heel schattig is.(11)jaar
+ik heb zelf allemaal dingen katten dingen.
+* een deken
+* een puzzel
+* een t-shirt
+* een koptelefoon
+* een knuffel
+* katten oren diadeem
+* een onesie 
+* portemonee
+* pyjama
+* boek
+* katten sokken
+*
+*
+*
+*
+*
+*
+*
 
 
 
