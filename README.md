@@ -64,8 +64,11 @@ LEUKE WEETJES
 11. Siamees
 12. Abessijn
 13. Exotic
-14. Amerikaanse korthaar
+14. Amerikaanse korthaar🙃
 15. Devon Rex
+
+ken je garfield?
+ik ben fan van garfield!
 
 
 
